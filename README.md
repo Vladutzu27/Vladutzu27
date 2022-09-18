@@ -1,6 +1,4 @@
-~My monitor is broken because of my little brother, so i wont work for the game for a while FML~ 
-
-got new monitor xD
+school started, won't work on projects that much
                                                                                                     
                .!VLAD P#######P B######&? ######B. #####G .B#######################B5?^.         
             ~G&@@@@@@# @@@@@@@@5 @@@@@@B @@@@@@@! @@@@@@~GB~&@@@@@@@@@@@@@@@@@@@@@@@@@@@&5:                          THIS IS MY GITHUB PROFILE    
