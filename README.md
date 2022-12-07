@@ -1,4 +1,4 @@
-school started, won't work on projects that much
+PREPARING FOR EXAM, WILL CODE DURING HOLIDAYS, AROUND CHRISTMAS
                                                                                                     
                .!VLAD P#######P B######&? ######B. #####G .B#######################B5?^.         
             ~G&@@@@@@# @@@@@@@@5 @@@@@@B @@@@@@@! @@@@@@~GB~&@@@@@@@@@@@@@@@@@@@@@@@@@@@&5:                          THIS IS MY GITHUB PROFILE    
