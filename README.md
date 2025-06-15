@@ -1,9 +1,9 @@
 ```
                                                  ::::::::            
                                               ::::::::::::::              16 Years old
-                                            :::::::.  .::::::             Computer enthusiast, I might code something from time to time, you can find most of that here
-                                           :::::.        :::::       
-                                          :::::    :::.   :::::      
+                                            :::::::.  .::::::             Computer enthusiast, I might code
+                                           :::::.        :::::            something from time to time, you
+                                          :::::    :::.   :::::           can find most of that here
                                          :::::    ::::::   :::::     
                                         :::::    ::::::::   :::::.   
                                        :::::    ::::::::::   .:::::  
